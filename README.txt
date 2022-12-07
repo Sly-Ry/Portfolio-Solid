@@ -1,1 +1,1 @@
-My own personal portfolio. <3
+Professional portfolio
